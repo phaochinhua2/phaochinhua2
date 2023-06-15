@@ -1,16 +1,17 @@
-### Hi there 👋
+### Phào chỉ nhựa
 
-<!--
-**phaochinhua2/phaochinhua2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Phào chỉ nhựa hiện nay hầu hết có mặt ở tất cả căn hộ tại Việt Nam. Vì đặc tính thẩm mỹ, dễ thi công, tiết kiệm chi phí mà ai cũng cực kỳ thích thú
 
-Here are some ideas to get you started:
+- Showroom: 90 Đường số 13, Phường Phước Bình, TP Thủ Đức, TPHCM.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Hotline: 0901.242.777
+
+- Nhà máy: Tân Uyên – Bình Dương.
+
+Phào chỉ nhựa là nguyên vật liệu được đúc sẵn từ nhựa tổng hợp, cùng sở hữu những hợp chất phụ gia, kết dính. Phào chỉ nhựa là 1 trong số những vật liệu trang trí nội thất quan trọng chẳng thể thiếu trong mọi không gian, được dùng rộng rãi trong sắp xếp nội thất như ốp lên è cổ, tường để thay thế cho những nguyên liệu truyền thống như: thạch cao, gỗ, xi măng.
+
+https://sangotoanthang.com/phao-chi-nhua/
+
+https://www.twitch.tv/phaochinhua2
+
+https://about.me/phaochinhua2/
